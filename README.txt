@@ -2,3 +2,4 @@ Ziemię pomierzył i głębokie morze,
 Wie, jako wstają i zachodzą zorze;
 Wiatrom rozumie, praktykuje komu,
 A sam nie widzi, że ma kurwę w domu.
+ps tymek to sigma
